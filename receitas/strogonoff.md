@@ -1,4 +1,4 @@
-#strogonoff vegetariano :stew:
+# strogonoff vegetariano :stew:
 
 ## INGREDIENTES
 
@@ -10,7 +10,7 @@
 - 3 tomates
 - 1 colher de ketchup
 - 1 lata de creme de leite
-- Sal a gosto
+- Sal
 
 ## MODO DE PREPARO
 
@@ -18,3 +18,4 @@
 2. Depois de cozidas pique em rodelas grossas.
 3. Refogue o restante dos ingredientes, acrescente as cenouras, e deixe no fogo por 5 minutos.
 4. Desligue o fogo, acrescente o ketchup e o creme de leite.
+5. heuehuehue
