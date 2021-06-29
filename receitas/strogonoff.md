@@ -1,23 +1,31 @@
 # strogonoff vegetariano :stew:
 
-## INGREDIENTES
+ - 1 xícara de aveia
+ - 2 xícaras de água morna
+ - 1 fio de azeite
+ - 1/2 cebola picada
+ - 4 dentes de alho picado
+ - 300 g de palmito pupunha picado
+ - 100 g de cogumelos champignon fatiados
+ - 1 xícara de molho de tomate
+ - 2 colheres (sopa) de mostarda
+ - 1/2 xícara de salsinha
+ - tomilho fresco a gosto
+ - alecrim fresco a gosto
+ - 1/2 xícara de água
+ - sal a gosto
+ - pimenta-do-reino a gosto
+ - MODO DE PREPARO
+ - Em uma tigela, misture a aveia com a água morna.
 
-- 3 cenouras grandes
-- 1 vidro pequeno de palmito
-- 1 vidro pequeno de cogumelos
-- 1 cebola picada
-- 1 dente de alho
-- 3 tomates
-- 1 colher de ketchup
-- 1 lata de creme de leite
-- Sal a gosto
+ 1- Deixe de molho por 30 minutos.
 
-## MODO DE PREPARO
+ 2- Em seguida, bata no liquidificador e reserve.
 
-1. Cozinhe as cenouras com o sal.
-2. Depois de cozidas pique em rodelas grossas.
-3. Refogue o restante dos ingredientes, acrescente as cenouras, e deixe no fogo por 5 minutos.
-4. Desligue o fogo, acrescente o ketchup e o creme de leite.
-5. Coma bastante
-6. Chame os amigos para comer atambém, não seja guloso
-7. Tire uma foto e poste no instagram
+ 3- Em uma frigideira, esquente 1 fio de azeite e refogue a cebola e o alho.
+
+ 4- Acrescente o palmito, os cogumelos, o molho de tomate, a mostarda e o creme de aveia reservado.
+
+ 5- Mexa bem e acrescente a salsinha, o tomilho e o alecrim fresco.
+
+ 6- Adicione a água e tempere com sal e pimenta-do-reino a gosto.
