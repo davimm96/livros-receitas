@@ -18,3 +18,6 @@
 2. Depois de cozidas pique em rodelas grossas.
 3. Refogue o restante dos ingredientes, acrescente as cenouras, e deixe no fogo por 5 minutos.
 4. Desligue o fogo, acrescente o ketchup e o creme de leite.
+5. Coma bastante
+6. Chame os amigos para comer atambém, não seja guloso
+7. Tire uma foto e poste no instagram
