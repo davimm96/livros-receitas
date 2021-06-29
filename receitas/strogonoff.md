@@ -1,4 +1,4 @@
-#strogonoff vegetariano :stew:
+# strogonoff vegetariano :stew:
 
 ## INGREDIENTES
 
