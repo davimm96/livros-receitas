@@ -10,7 +10,7 @@
 - 3 tomates
 - 1 colher de ketchup
 - 1 lata de creme de leite
-- Açucar 😕
+- Sal a gosto
 
 ## MODO DE PREPARO
 
